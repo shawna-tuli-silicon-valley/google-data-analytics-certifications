@@ -2,7 +2,7 @@
 
 • [Shawna Tuli 2023 Google Certificate in Foundations: Data, Data, Everywhere](https://www.coursera.org/account/accomplishments/certificate/K5Z79GCX3J5W)
 
-• [Shawna Tuli 2023 Google Certificate in Ask Questions to Make Data-Driven Decisions] (https://www.coursera.org/account/accomplishments/certificate/EWKQWE6E8DEE) 
+• [Shawna Tuli 2023 Google Certificate in Ask Questions to Make Data-Driven Decisions](https://www.coursera.org/account/accomplishments/certificate/EWKQWE6E8DEE) 
 
 • [Shawna Tuli 2023 Google Certificate in Prepare Data For Exploration](https://www.coursera.org/account/accomplishments/certificate/77U39SFK3N9H)
 
